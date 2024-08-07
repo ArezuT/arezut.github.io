@@ -8,7 +8,7 @@ From the Island of southeast asia where one end reached China and the other reac
 Since the spread of sugar had followed through the West Indies and tropical parts of the Americas beginning in the 16th century, followed by more intensive improvements in production in the 17th through 19th centuries in that part of the world. The development of beet sugar, high-fructose corn syrup and other sweeteners in the 19th and 20th centuries.
 
 ![daniel-kraus-TXVntZ190Ao-unsplash](https://github.com/user-attachments/assets/aac48267-df85-4d9b-9229-a61eef020b8b)
-Source: *Daniel Kraus-Unsplash* 
+*Photo by Daniel Kraus on Unsplash* 
 
 *The text content of this site was lovingly borrowed from the [Wikipedia article on History of Sugar](https://en.wikipedia.org/wiki/History_of_sugar) on 6 August 2024 under the [Creative Commons Attribution-ShareAlike License](https://en.wikipedia.org/wiki/Wikipedia:Text_of_Creative_Commons_Attribution-ShareAlike_3.0_Unported_License). Licensing terms of content from other sources (photos, etc.) is noted along with each respective resource.*
 
