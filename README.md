@@ -5,7 +5,7 @@ However, the actual cultivation of sugarcane began by one the Papuan in New Gine
 ## **How it Spread**
 From the Island of southeast asia where one end reached China and the other reached from India through Persia and slowly making its ways to the Arab Nations and throughout europe. Sugar became the most expensive spice of it's time.
 ## **Manufacturer of Refined Sugar**
-Since the spread of sugar had followed through the West Indies and tropical parts of the Americas beginning in the 16th century, followed by more intensive improvements in production in the 17th through 19th centuries in that part of the world. The development of beet sugar, high-fructose corn syrup and other sweeteners in the 19th and 20th centuries.
+Ever since sugar was introduced to the Americas in the 16th century, particularly in the West Indies and tropical regions, the production of sugar in that region saw significant advancements in the 17th and 18th centuries. The 19th and 20th centuries saw the creation of beet sugar, high-fructose corn syrup, and other sweeteners.
 
 ![daniel-kraus-TXVntZ190Ao-unsplash](https://github.com/user-attachments/assets/aac48267-df85-4d9b-9229-a61eef020b8b)
 *Photo by Daniel Kraus on [Unsplash](Photo by <a href="https://unsplash.com/@bovender?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Daniel Kraus</a> on <a href="https://unsplash.com/photos/a-pile-of-sugar-cubes-sitting-on-top-of-each-other-TXVntZ190Ao?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
